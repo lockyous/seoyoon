@@ -1,1 +1,1 @@
-# lockyous.github.io
+# Seoyoon Kang Interior Design Portfolio
